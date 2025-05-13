@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 🌼 Hi! I'm Chloe,
 🕝 I've been coding almost 8 years now<br>
 🪴 Learning about about life honestly-
 📖 Currently studying Software Engineering, Chemistry, Physics, Music 2 and Mathematics Advanced <br>
