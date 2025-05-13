@@ -1,6 +1,6 @@
-# 🌼 Hi! I'm Chloe,
+# 🌼 Hi I'm Chloe!
 🕝 I've been coding almost 8 years now<br>
-🪴 Learning about about life honestly-
+🪴 Learning about about life honestly- <br>
 📖 Currently studying Software Engineering, Chemistry, Physics, Music 2 and Mathematics Advanced <br>
 🎓 Class of '26<br>
 🫧 Working on a expanding my knowledge as well as a variety of passion projects<br>
